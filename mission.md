@@ -35,16 +35,16 @@ We will grow while maintaining profitability and sharing our success with our em
 
 * **What about equity and profit-sharing for employees?** 
 
- We plan to share our profits with employees through benefits and structured profit-sharing programs. We don't plan on sharing equity as these programs are often an accounting nightmare. They create false hope of a big payday. Our focus is on long term viability and growth.
+	We plan to share our profits with employees through benefits and structured profit-sharing programs. We don't plan on sharing equity as these programs are often an accounting nightmare. They create false hope of a big payday. Our focus is on long term viability and growth.
 
- You can see this focus reflected in our current benefits offering. In the United States, companies of 50 employees or less do not have to offer healthcare (and most do not). However, we believe the well-being of our people is paramount. We offer high quality, platinum healthcare for all employees and dependents. 
+	You can see this focus reflected in our current benefits offering. In the United States, companies of 50 employees or less do not have to offer healthcare (and most do not). However, we believe the well-being of our people is paramount. We offer high quality, platinum healthcare for all employees and dependents. 
 
- We anticipate that our next benefit will be a 401K plan with structured profit sharing. We plan to implement this in 2020.
+	We anticipate that our next benefit will be a 401K plan with structured profit sharing. We plan to implement this in 2020.
 
 * **Will you take outside funding?** 
 
- Unlikely. We believe strategic growth funded by profitability is the sustainable path. This approach yields the best possible path to wealth and well-being for all of our employees. We have no desire to become a unicorn.
+	Unlikely. We believe strategic growth funded by profitability is the sustainable path. This approach yields the best possible path to wealth and well-being for all of our employees. We have no desire to become a unicorn.
 
 * **Are you looking to be acquired?** 
 
- No. We believe we can be a long term company that remains a great place to work and does exceptional work, all while building employee wealth. Most acquisitions we have seen compromise would values and priorities.
+ 	
