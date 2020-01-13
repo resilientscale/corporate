@@ -47,4 +47,4 @@ We will grow while maintaining profitability and sharing our success with our em
 
 * **Are you looking to be acquired?** 
 
- 	
+	No. We believe we can be a long term company that remains a great place to work and does exceptional work, all while building employee wealth. Most acquisitions we have seen compromise would values and priorities.
