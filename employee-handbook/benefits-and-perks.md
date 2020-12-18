@@ -29,8 +29,6 @@ However, you may be required to travel for:
 
 While we do not care where you are working from, certain contracts may have core hour requirements.
 
-> Note: we are considering establishing co-working spaces for employees who would prefer to work in an office or co-located setting.
-
 ## Employee expenses
 
 We will reimburse employees for approved expenses related to the direct execution of your employment. All expenses, with receipts, are to be entered into Harvest. Reimbursements will be processed within two pay periods via direct deposit.
